@@ -1,1 +1,1 @@
-# testtesttest
+BITCOIN IS MONEY NOT CURRENCY 
